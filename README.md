@@ -7,3 +7,6 @@
 
 
  Group members: Kelvin, Lemar, Edgar, Buchi
+
+ Video link: https://youtu.be/bFR28Zsjeig
+ 
